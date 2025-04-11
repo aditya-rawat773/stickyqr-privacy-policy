@@ -1,0 +1,1 @@
+# stickyqr-privacy-policy
